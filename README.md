@@ -1,1 +1,1 @@
-my imagebed from dec 2023
+my picturebed from dec 2023
